@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SilverNEOYT
+- 👋 Hello, i am Silver
 - 👀 I’m interested in Modding FNF
 - 🌱 I’m currently learning how to Mod
 - 💞️ For now i am not looking for anyone to help me
